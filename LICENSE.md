@@ -1,4 +1,4 @@
-# 
+# exclusive Affinity Photo for PC | Affinity Photo for Windows Panel | layer-based-editing + batch-processing is the best Affinity Photo for PC | Affinity Photo for Windows panel,
 
 
 
